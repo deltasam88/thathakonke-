@@ -1,2 +1,0 @@
-# thathakonke-
-online store project 
